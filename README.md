@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @FRchocolatineFR
+- fuck yous @FRchocolatineFR
